@@ -1,7 +1,6 @@
 ![yanguvayu](https://cdn.discordapp.com/attachments/955630122596196367/1455764560199024741/Untitled740_20251231102819.png?ex=69ce8b25&is=69cd39a5&hm=3e88b239833d59769a57929fc223f9f92890b2fe832b4a57d741470284ce94a8&)
 > [!IMPORTANT]
-> i dont
-> 't exactly know how to work this thing yet
+> i don't exactly know how to work this thing yet
 >[strawpage](https://yanguvayu.straw.page/)
 <!--
 **yanguvayu/yanguvayu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
