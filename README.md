@@ -1,7 +1,10 @@
 ![yanguvayu](https://cdn.discordapp.com/attachments/955630122596196367/1455764560199024741/Untitled740_20251231102819.png?ex=69ce8b25&is=69cd39a5&hm=3e88b239833d59769a57929fc223f9f92890b2fe832b4a57d741470284ce94a8&)
-> [!IMPORTANT]
-> i don't exactly know how to work this thing yet
->[strawpage](https://yanguvayu.straw.page/)
+# <p align="center"> YINNIYANNIE </p>
+<br> <p align="center"> you can call me either yan or yin,<br> im genderfluid so theres absolutely in no way u can misgender me,<br> any pronouns ofc HELP, i use tung tung tung sahur tiktok humor if i really get chatty <sub>beware i'm gay as hell so if i use the f slur it's because i am one unless u specifically aren't comfy w it</sub> <br> TELL ME. </p>
+<br>
+# <p align="center"> PONYTOWN </p> 
+<br> <p align="center"> Guys..c+h anytime pls..i'm nice, w2i also because i like being semi afk <br> Multishipper, you can literally jst cuds me with a ship <br> that u like with the skin i currently use <sub> i also do just that..</sub> <br> im laggy as hell if u see me gone abruptly i am LAGGING pls save me <br> <sub><sup> im mostly seen on the utmv spot, uphill, or outside of cafe</sup></sub> </p>
+<br>
 <!--
 **yanguvayu/yanguvayu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
