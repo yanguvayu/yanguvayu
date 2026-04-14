@@ -1,4 +1,4 @@
-![yanguvayu](https://cdn.discordapp.com/attachments/955630122596196367/1455764560199024741/Untitled740_20251231102819.png?ex=69ce8b25&is=69cd39a5&hm=3e88b239833d59769a57929fc223f9f92890b2fe832b4a57d741470284ce94a8&)
+![yanguvayu](https://cdn.discordapp.com/attachments/882981324783255623/1493603389639102494/Untitled824_20260414202556.png?ex=69df920d&is=69de408d&hm=8aed8f387be6a89e46623f4e9c5d0079f4ac100b6075dec585284caa126b874a&)
 # <p align="center"> YINNIYANNIE </p>
 <br> <p align="center"> you can call me either yan or yin,<br> im genderfluid so theres absolutely in no way u can misgender me,<br> any pronouns ofc HELP, i use tung tung tung sahur tiktok humor if i really get chatty <sub>beware i'm gay as hell so if i use the f slur it's because i am one unless u specifically aren't comfy w it</sub> <br> TELL ME. </p>
 <br>
