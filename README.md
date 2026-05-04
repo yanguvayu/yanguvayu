@@ -1,9 +1,12 @@
 ![yanguvayu](https://cdn.discordapp.com/attachments/882981324783255623/1493603389639102494/Untitled824_20260414202556.png?ex=69df920d&is=69de408d&hm=8aed8f387be6a89e46623f4e9c5d0079f4ac100b6075dec585284caa126b874a&)
 # <p align="center"> YINNIYANNIE </p>
-<br> <p align="center"> you can call me either yan or yin,<br> im genderfluid so theres absolutely in no way u can misgender me,<br> any pronouns ofc HELP, i'd say i'm pretty immature in terms of humor, tiktok lingo and all, so im very uncomf with older or dry people..dniuid if you are those, i don't hate ya'll i'm just extremely scared of u guys<sub> <br> i can reclaim the f slur for gay people stop getting at me for this,unless u specifically aren't comfy w it</sub> <br> TELL ME. </p>
+<br> <p align="center"> you can call me either yan or yin,<br> im genderfluid so any pronouns yesyes<br> sometimes i need tonetags but i can tell you're joking if u make kys jokes or smthn like that, just make sure we're fairly familiar with eachother first,<sub><br> i'd say i'm pretty childish in terms of humor, tiktok lingo and all, so im very uncomf with older or dry people..dniuid if you are those, i don't hate ya'll i'm just extremely scared of u guys
+
+<p align="center"> <sub><br> i can reclaim the f slur for gay people stop getting at me for this,unless u specifically aren't comfy w it</sub> <br> TELL ME. </p>
 <br>
+
 # <p align="center"> PONYTOWN </p> 
-<br> <p align="center"> Guys..c+h anytime pls..i'm nice, w2i also because i like being semi afk <br> Multishipper, you can literally jst cuds me with a ship <br> that u like with the skin i currently use <sub> i also do just that..no weird ships tho obv?? </sub> <br> im laggy as hell if u see me gone abruptly i am LAGGING pls save me <br> <sub><sup> im mostly seen on the utmv spot, homestuck spot, uphill, or outside of cafe</sup></sub> </p>
+<br> <p align="center"> Guys..c+h anytime pls..i'm nice, w2i also because i like being semi afk <br> Multishipper, you can literally jst cuds me with a ship <br> that u like with the skin i currently use <sub> i also do just that..no weird ships tho obv?? </sub> <br> im laggy so if u see me gone abruptly i am LAGGING pls send hell<br> <sub><sup> im mostly seen on the utmv spot, homestuck spot, uphill, or outside of cafe</sup></sub> </p>
 <br>
 <!--
 **yanguvayu/yanguvayu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
